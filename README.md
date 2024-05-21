@@ -5,7 +5,7 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![](https://media.tenor.com/YVG0xDJg5eQAAAAM/teach-teaching.gif)
+![](https://tenor.com/pt-BR/view/cat-kissing-mwah-cat-kissing-camera-gif-7465977276081568772)
 
 contato email 📧 thais.mingau3@gmail.com
 
